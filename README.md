@@ -1,0 +1,2 @@
+# Malo-kodiranja
+malo vezbanja
